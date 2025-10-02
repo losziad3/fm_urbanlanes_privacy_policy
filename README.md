@@ -39,4 +39,5 @@ You may request deletion of your account or reports by contacting us.
 
 ## Contact Us
 If you have questions about this Privacy Policy, please contact us at:  
-📧 your-email@example.com
+📧 estatemaster2023@gmail.com
+
